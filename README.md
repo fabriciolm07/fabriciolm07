@@ -1,4 +1,4 @@
 Fabricio Lopes de Moraes
-**bem vndo ao meu repositório digital, esses são alguns dos meus projetos**
+**bem vindo ao meu repositório digital, esses são alguns dos meus projetos**
 
-![](https://media.tenor.com/ISCbeJiZt3cAAAAM/bellingham-real-madrid.gif)
+![](https://media1.tenor.com/m/hcY6CN5Jf_EAAAAC/vai-corinthians-timao.gif)
